@@ -1,0 +1,1 @@
+readme atau baca saya
